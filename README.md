@@ -22,4 +22,8 @@ Side servers You can buy your bot's token and use it from any hosting you want.
 # # Free Hosting
 https://panel.rasbyte.net 
 https://jooni.online/
-And 
+https://my.optikservers.com
+
+# # Sorry
+
+İ Liked did BYE MY my final mod is my project and my code Spuid All BRAWL Stars Modding TR
