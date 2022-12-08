@@ -4,6 +4,10 @@ Credits : https://github.com/HaccerCat/BrawlStars-Client And https://github.com/
 Modded Version And Faster Than all Thank you S.B for BS CLİENT
 
 
+# #Best Power
+
+![ScreenShot](https://media.discordapp.net/attachments/1050109837473751153/1050219111717814302/Screenshot_20221204-050420_YouTube.jpg)
+
 ![ScreenShot](https://media.discordapp.net/attachments/1050109837473751153/1050218076668448818/Screenshot_20221208-040022_Discord.jpg)
 ![ScreenShot](https://media.discordapp.net/attachments/1050109837473751153/1050218076941066280/Screenshot_20221208-040016_Discord.jpg)
 ![ScreenShot](https://media.discordapp.net/attachments/1050109837473751153/1050218077205303358/Screenshot_20221208-040003_Discord.jpg)
