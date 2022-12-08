@@ -1,7 +1,7 @@
 # BSJSC2
 Bsjs C2 Source My finally Mod and Code bye ;( 
-Credits : https://github.com/HaccerCat/BrawlStars-Client And https://github.com/DemirCnq/brawl-stars-client-bot
-Modded Version And Faster Than all Thank you S.B for BS CLİENT
+Credits : https://github.com/HaccerCat/BrawlStars-Client And https://github.com/DemirCnq/brawl-stars-client-bot and https://github.com/renogang1/brawl-stars-client-modjs
+Modded Version And Faster Than all Thank you S.B for BS CLİENT And Rengogang 
 
 
 # #Best Power
