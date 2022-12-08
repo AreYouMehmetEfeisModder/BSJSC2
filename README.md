@@ -16,8 +16,10 @@ Modded Version And Faster Than all Thank you S.B for BS CLİENT
 ![ScreenShot](https://media.discordapp.net/attachments/1050109837473751153/1050218078014820422/Screenshot_20221208-035911_Brawl_Stars.jpg)
 
 # #How To Use
-Main server and client Server Project works as different servers To use args[1] / number of servers must be required only one main server and main server 2 gb ram %1₺₺ cpu in works
+Main server and client Server Project works as different servers To use args[1] / number of servers must be required only one main server and main server 2 gb ram %100 cpu in works
 Side servers You can buy your bot's token and use it from any hosting you want. 
 
 # # Free Hosting
 https://panel.rasbyte.net 
+https://jooni.online/
+And 
