@@ -1,3 +1,5 @@
+Mehmet Efe???_/F.R.I.D.A.Y/I.M#6339 My Discord
+
 # BSJSC2
 Bsjs C2 Source My finally Mod and Code bye ;( 
 Credits : https://github.com/HaccerCat/BrawlStars-Client And https://github.com/DemirCnq/brawl-stars-client-bot and https://github.com/renogang1/brawl-stars-client-modjs
