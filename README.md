@@ -1,6 +1,12 @@
 # # Contact me 
 Mehmet Efe???_/F.R.I.D.A.Y/I.M#6339 My Discord
 
+# # Credit If you delete the credits it doesn't make you the owner of that code 
+We hate you all for not supporting us 
+
+# #Do İt
+Give a Star and Follow Because Why Not (I STOLE FROM SB That Promise xd Because Why Not) 
+
 # # Requirements
 Requirements: One brain (I don't think you have more) 
 
