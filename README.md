@@ -1,5 +1,5 @@
 # # Contact me 
-Mehmet Efe???_/F.R.I.D.A.Y/I.M#6339 My Discord
+Mehmet Efe???_/F.R.I.D.A.Y/I.M#6339, Mehmet Efe???_/F.R.I.D.A.Y/I.M#2062 My Discord
 
 # # Credit If you delete the credits it doesn't make you the owner of that code 
 We hate you all for not supporting us 
