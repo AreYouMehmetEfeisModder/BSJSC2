@@ -11,7 +11,7 @@ Give a Star and Follow Because Why Not (I STOLE FROM SB That Promise xd Because 
 Requirements: One brain (I don't think you have more) 
 
 # BSJSC2
-Bsjs C2 Source My finally Mod and Code bye ;( 
+Bsjs C2 Source My finally Mod and Code bye ;( (thats joke xd)
 Credits : https://github.com/HaccerCat/BrawlStars-Client And https://github.com/DemirCnq/brawl-stars-client-bot and https://github.com/renogang1/brawl-stars-client-modjs
 Modded Version And Faster Than all Thank you S.B for BS CLİENT And Rengogang 
 
